@@ -1,3 +1,4 @@
+![Scan 27 Apr 24 18·37·27 17142232998521](https://github.com/user-attachments/assets/7331800f-0fc3-433b-9da6-243df4e2d219)
 #IOQM
 ![Screenshot_20241216_193858_Drive](https://github.com/user-attachments/assets/4357ce7b-5ce8-4fc6-9269-a681c4e8d9fe)
 #CERN
